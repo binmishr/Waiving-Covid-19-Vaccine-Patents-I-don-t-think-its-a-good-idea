@@ -1,0 +1,1 @@
+# Waiving-Covid-19-Vaccine-Patents-I-don-t-think-its-a-good-idea
